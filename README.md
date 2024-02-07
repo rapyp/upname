@@ -1,0 +1,2 @@
+# upname
+mati kau sana
